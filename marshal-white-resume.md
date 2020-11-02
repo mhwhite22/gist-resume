@@ -11,11 +11,11 @@ email: mhwhite22@gmail.com
 April 2013-July 2020  Woodside, CA
 
 At Thomas Fogarty Winery, I began as a part-time helper and quickly accrued responsibilities and earned a position of trust.  As assistant winemaker, I was one of the most senior employees in the company and had many responsibilities, including:
-Hiring, training, and supervising staff
-Managing compliance with multiple regulatory agencies, and, by extension, risk assessment and mitigation.
-Managing operations, including designing and implementing workflows and assigning staff for maximum effect.
-Quality assurance, including creating, managing, and interpreting large sets of data.
-Industry and brand ambassadorship, on a limited basis.
+-Hiring, training, and supervising staff
+-Managing compliance with multiple regulatory agencies, and, by extension, risk assessment and mitigation.
+-Managing operations, including designing and implementing workflows and assigning staff for maximum effect.
+-Quality assurance, including creating, managing, and interpreting large sets of data.
+-Industry and brand ambassadorship, on a limited basis.
 The process of winemaking is fraught with unexpected complications and I developed skill at handling logistical problems as they arose.  I always went above and beyond to maintain the highest standards of quality in our production and operation, and managed our team successfully.
 
 
